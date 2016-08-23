@@ -1,2 +1,2 @@
 # hello-world
-mondial salutation
+a mondial salutation, ecumenical greeting or universal address.  
